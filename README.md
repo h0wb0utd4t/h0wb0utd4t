@@ -1,7 +1,4 @@
 - 👋 Hi, I’m Rei (@h0wb0utd4t)!
-- 👀 I’m interested in history, current events, gaming (just New World and Hearthstone currently)
-- 🌱 I’m currently earning my Google cybersecurity certification
-- 💞️ I’m looking to meet other anxious Millennials who are new to the tech industry
 - 📫 How to reach me: tbd
 - 😄 Pronouns: they/them, she/her
 - ⚡ Fun fact: I am a philomath!
